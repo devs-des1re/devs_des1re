@@ -8,4 +8,7 @@ I have different expriences in different areas. I have completed a 3 year Python
 # Socials
 I have multiple social accounts. I am more coding than on social media, so don't expect me to respond all the time
 
+Github: https://github.com/devs-des1re
+Youtube: https://www.youtube.com/@devs_des1re
 Discord: https://discord.com/users/1096369071961952377
+Tiktok: https://www.tiktok.com/@abpganster
