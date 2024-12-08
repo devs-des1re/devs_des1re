@@ -13,7 +13,8 @@ Youtube: https://www.youtube.com/@devs_des1re <br />
 Discord: https://discord.com/users/1096369071961952377 <br />
 Tiktok: https://www.tiktok.com/@abpganster <br />
 
-# Test
-a <br />
-b <br />
-c <br />
+# My Message
+You know... Those who make mistakes and reflect from them... Are the ones who will always succeed. Never let mistakes blind you.
+
+# Thank you
+Thank you for taking your time and reading this. Have a wonderful day!
